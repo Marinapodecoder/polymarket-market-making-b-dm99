@@ -1,4 +1,4 @@
-# 
+# AI-powered Polymarket Plugin | custom-strategies + API-integration offers the most advanced Polymarket plugin, with custom-strategies and API-integration. Ideal for professional
 
 
 
